@@ -1,7 +1,5 @@
 ### Hi there 👋
 
-Please get in touch if there's anything that catches your eye :)
-
 ## 💪 Overview
 
 <p>
